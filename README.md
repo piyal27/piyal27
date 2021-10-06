@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Piyal Chakraborty
+- 👀 I’m interested in learning new skills
+- 🌱 I’m currently learning MBA
+- 💞️ I’m looking to collaborate with you
+- � My mail id is- piyal.chakraborty27@gmail.com
